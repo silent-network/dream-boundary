@@ -53,4 +53,4 @@ If you're here out of curiosity...
 I can't stop you from scrolling and looking at all the files.
 I'm disappointed at your refusal to have fun.
 But I commend the power of your will.
-People like you are exactly what my creation needs :)
+People like you are exactly what our creation needs :)
